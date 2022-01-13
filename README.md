@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @P4DN1K
 - 👀 I’m interested in new technologies, crypto mining and sheets.
-- 🌱 I’m a semi technology guy, i am fascinated by programing and things but I myself cant program and I dont like to do it myself altough I love creating sheets.
+- 🌱 I’m a semi technology guy, i am fascinated by programing and things but I myself cant program and I dont like to do it myself but I consider myself as nerdy wtf.
 - 💞️ I’m looking to collaborate on mining stuff. I love the idea behind crypto mining and to beeing a part of a decentralised network.
 - 📫 p4dn1k@protonmail.ch
 - 🐦 @P43xit
